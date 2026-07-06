@@ -2,6 +2,8 @@
 
 **言語 / Language:** 日本語 | [English Version](README.md)
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/M6J122N2K2)
+
 ## The Countdown to Earth’s Collapse Has Already Begun
 
 **ティッピング・カスケード、キーストーン種喪失、生態系崩壊、食料システム危機に関する科学的考察**
